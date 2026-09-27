@@ -1,4 +1,5 @@
 # السلام عليكم
 
  انا __عثماني شميم__
-A teacher in Passion. But student in occation
+I'm a teacher by profession, but deep down, I'm still a student. So, learning is my passion.
+
