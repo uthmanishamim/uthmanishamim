@@ -6,7 +6,7 @@ I'm a teacher by profession, but more likely, I'm still a student by passion. So
 
 مجھے پسند ہے پڑھنا لکھنا اور نئی نئی الفاظ سیکھنا۔ بھلا اس میں ہی تو زندگی ہے۔
 
-العربيه، 😍 .Is my favourite language
+**العربيه**، 😍 .Is my favourite language
 
 এবং **বাংলা** আমার নিজের ভাষা। ☺️
 
